@@ -2,6 +2,11 @@
 
 Un proyecto innovador que combina **Inteligencia Artificial** y **Blockchain** para garantizar seguridad y transparencia en las transacciones financieras.
 
+Links:
+https://websim.ai/p/5mzzva73x76u3ddyd4gl
+https://websim.ai/p/wuwjb9buw02q7wa5ls5h
+https://websim.ai/p/awgocw6zeheli7me0y42
+
 ---
 
 ## 📌 **Motivación**
